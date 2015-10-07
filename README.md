@@ -6,10 +6,8 @@ let see wt happended
 
 you know
 
-
 dfnkdslflk
 
 pc1 file
 
 cnages in new 2 folder
-
